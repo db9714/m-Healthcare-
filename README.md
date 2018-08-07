@@ -4,6 +4,8 @@ prescription to the patient in any condition.
 
 #The secured Traceable reliable device used in m-healthcare projects.
 
+For more information you can contact to me anytime 
+# deepakbhangale1996@gmail.com
 
 
 # some screenshots are attached with the folders.
